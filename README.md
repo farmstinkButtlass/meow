@@ -15,6 +15,10 @@ crossmound, undertale, & needy girl overdose
 
 feel free to ready my [rentry](https://rentry.co/parcelmistress) if youd like ( or just the [pony town](https://rentry.co/perjury/) if youve read this :B )
 
+--
+
+if youve completed yttd 2-2 click [this](https://www.ferendum.com/en/PID2104288PSD49277209) :3
+
 ![](https://file.garden/ZFwqlyhvAk-Bo3Zk/halowen.png)
 
 ---
